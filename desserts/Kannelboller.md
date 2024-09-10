@@ -4,7 +4,7 @@
 
 - Flour
 - Water
-- Margarine
+- Coco butter
 - Sugar
 - Cinnamon
 - Salt
